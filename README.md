@@ -1,0 +1,1 @@
+# Emosi_dan_pribadi
